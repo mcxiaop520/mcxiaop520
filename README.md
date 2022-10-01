@@ -4,7 +4,7 @@
 
 - 👋 Hi, I’m @Xiaop520.
 
-- 👀 I’m like in computer.
+- 👀 I like computers.
 
 - 🌱 I Know Html and ss.
 
