@@ -4,9 +4,9 @@
 
 - 👋 Hi, I’m @Xiaop520.
 
-- 👀 I’m interested in computer.
+- 👀 I’m like in computer.
 
-- 🌱 I’m currently learning Html and Css.
+- 🌱 I Know Html and ss.
 
   Contact me at:
 
