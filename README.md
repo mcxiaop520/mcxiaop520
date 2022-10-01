@@ -6,7 +6,7 @@
 
 - 👀 I like computers.
 
-- 🌱 I Know Html and ss.
+- 🌱 I Know Html and Css.
 
   Contact me at:
 
